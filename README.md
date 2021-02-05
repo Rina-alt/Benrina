@@ -13,4 +13,4 @@ I love
 1. cooking 
 1. Music
 
-![GitHub Logo] (images/logo.png)
+[**### Smile my best gift to the world**]
