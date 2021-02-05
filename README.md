@@ -4,4 +4,4 @@ I am a second year Masters Student at URI at the Marine Affairs department, my s
 ## HOBBIES
 I love traveling expercing different cultures meet new people and just get to know people. My travelling experience has not only shaped the manner in which i interact with people but it has changed my perspective about life in general. I have learn to respect people's options, boundaries and learn to accpet them for who they are.
 
-** cooking **  is also one of my favorite thing to do, trying new recipes and seeing people eat 
+**cooking**  is also one of my favorite thing to do, trying new recipes and seeing people eat 
