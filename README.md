@@ -13,4 +13,4 @@ I love
 1. cooking 
 1. Music
 
-![Github
+![GitHub Logo] (images/logo.png)
