@@ -6,4 +6,4 @@ I love traveling expercing different cultures meet new people and just get to kn
 
 *cooking*  is also one of my favorite thing to do, trying new recipes and seeing the happy expression on their faces gives me so much joy.
 
->> music they say is the food for the soul with _gospel _love'srock_, *reggae*,_rnb_ my favorite 
+_**music they say is the food for the soul with _gospel _love'srock_, *reggae*,_rnb_ my favorite 
